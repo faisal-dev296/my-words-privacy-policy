@@ -1,4 +1,4 @@
-This privacy policy applies to the "My Words - Fun Learning App" (hereby referred to as "Application") for mobile devices that was created by Faisal (hereby referred to as "Service Provider") as a Free service. This service is intended for use "AS IS".
+This privacy policy applies to the "My Words - Learning App for Kids" (hereby referred to as "Application") for mobile devices that was created by Adham Faisal (hereby referred to as "Service Provider") as a Free service. This service is intended for use "AS IS".
 
 
 Information Collection and Use
